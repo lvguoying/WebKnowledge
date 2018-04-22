@@ -1,2 +1,0 @@
-- Thanks for sharing.
-- Very useful for us.
